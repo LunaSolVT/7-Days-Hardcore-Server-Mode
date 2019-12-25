@@ -1,0 +1,1 @@
+# 7-Days-Hardcore-Server-Mode
